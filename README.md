@@ -1,1 +1,1 @@
-Para generasi yang tidak puas akan pemerintah 
+NPC in The Real WORLD 
