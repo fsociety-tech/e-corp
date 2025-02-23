@@ -1,5 +1,1 @@
-#fsociety-tech/e-corp/
-#elliotalderson
-#skriptkiddie
-
-Wellcome 
+Para generasi yang tidak puas akan pemerintah 
